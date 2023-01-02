@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @swami-nomita
+- 👀 I’m interested in exploring the world
+- 🌱 I’m currently learning how to feed up
+- 💞️ I’m looking to collaborate on Growing Baby Techniques
+- 📫 How to reach me: swami.nomita@gmail.com
